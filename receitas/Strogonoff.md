@@ -1,4 +1,4 @@
-# Strogonoff de Flango 🐔
+# Strogonoff de Frango 🐔
 
 é só um teste
 
